@@ -1,0 +1,15 @@
+CE WEEKEND 
+- Réviser les différents aspects soulevés en Mediterranean Ecology 
+- LR : 
+  -> Finir l'introduction
+	-> Finir le rapport sur la fluorescence 
+	-> Relire l'entièreté du rapport 
+-> Faire un power point de présentation 
+- RAPPORT DE STAGE : 
+  -> la comptabilité 
+  -> la problématique 
+  -> REFAIRE LES GRAPHIQUES
+- BDS : 
+  - remplir le fichier des capitaines 
+- faire la demande de réservation
+- contacter les différentes écoles 
